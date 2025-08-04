@@ -24,7 +24,7 @@ Also, Shopify is not available in some countries due to restrictions. These incl
 
 Signing up is very easy. Just follow these steps:
 
-1. Go to [shopify official](https://yamuparkoti.com/Go-Shopify)
+1. Go to [shopify official](https://shopifyfreetrial.systeme.io/d175aeef)
 2. Enter your email address.
 3. Click “Start free trial.”
 4. Create your store name and set a password.
@@ -121,7 +121,7 @@ Take this opportunity to:
 - Build your store step by step.
 - Save money while growing your business.
 
-Ready to start? Visit [shopify.com](https://yamuparkoti.com/Go-Shopify) and begin your free trial today.
+Ready to start? Visit [shopify.com](https://shopifyfreetrial.systeme.io/d175aeef) and begin your free trial today.
 
 ---
 
